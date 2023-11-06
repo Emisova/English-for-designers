@@ -23,4 +23,3 @@ This process reflects the development of discipline and consistency in an indivi
 
 In summary, the phrase "have to" carries the power to motivate, yet it also brings the burden of constant obligation. To achieve their goals, people need to be disciplined and consistent in their efforts. 
 
- ![A very beautiful smiling full of happiness duck.](https://hips.hearstapps.com/hmg-prod/images/how-to-keep-ducks-call-ducks-1615457181.jpg?crop=1xw:0.84375xh;center,top&resize=1200:*)
