@@ -7,6 +7,7 @@
 [Revision](revision.md)
 
 ## Final draft
+### Written in [Hemingway editor](https://hemingwayapp.com/)
 
 The phrase "have to" is a common expression used by many people, both in its negative and positive forms. In this essay, I will discuss its various implications and the impact it can have on individuals, including myself.  
 
