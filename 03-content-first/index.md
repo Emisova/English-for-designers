@@ -6,7 +6,13 @@ Hello, my name is Emma Žambůrková. I am a 3D creator, artist, dancer, and stu
 A little about my past and present:
 My passion for creating something creative has been with me since childhood. From the age of 9, I dedicated myself to dancing, initially recreationally and later competitively. The dance group I belonged to and competed with was called Danceway. With this group, we became champions of the Czech Republic several times and participated in the European and World Championships abroad, specifically in the Netherlands. I am no longer part of this group as our team disbanded, and everyone went their separate ways. (Over time, things changed within the team, and it wasn't the same as before.)
 
+![IMG_2163](https://github.com/Emisova/english-for-designers/assets/149970173/7211ca73-d185-4334-838d-de10907b3484)
+
 Since the age of 16, I have been a member of a stunt team in Prague (FILMKA), a group of stunt performers in the Czech Republic called upon for various films, including those for Netflix or Amazon, and many other productions. It's a fantastic group of people who love adrenaline, and I am very grateful to be part of it, contributing to the creation of various series and films.
+
+![IMG_6355](https://github.com/Emisova/english-for-designers/assets/149970173/f3ce5a0f-7ccd-4054-8d61-f3c88242561a)
+![IMG_2166](https://github.com/Emisova/english-for-designers/assets/149970173/ef60045e-37fb-488a-8e5b-9e32195389f4)
+![IMG_2164](https://github.com/Emisova/english-for-designers/assets/149970173/ad44a0b5-8a7c-4222-adfc-a15ca74fc46c)
 
 My high school was not at all creative; I attended a general high school where there was no art or anything creative. At the end of high school, I wanted to study something that genuinely interested me and where I could find my next passion. So, I decided on the field of animation and VFX because it was something new and highly intriguing, and I discovered a passion I didn't know I had.
 
