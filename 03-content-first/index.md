@@ -18,6 +18,17 @@ Currently, I am passionate about creating my imaginary characters. This idea cam
 
 I've already shown my film project, but I can at least show you the characters because I can't play videos here.
 
+![kazetečky](https://github.com/Emisova/english-for-designers/assets/149970173/e8d2aad5-9710-4277-ad65-4dd54d4fe4d4)
+
+![tv2](https://github.com/Emisova/english-for-designers/assets/149970173/49a257ee-48f5-45e2-872b-eed718845155)
+
+![pskluci](https://github.com/Emisova/english-for-designers/assets/149970173/bccc930a-9080-4ea9-bfc9-4dba8c36e9a6)
+
+![IMG_0741 (1)](https://github.com/Emisova/english-for-designers/assets/149970173/282c29d3-6726-4954-8d4d-1fa4257877f9)
+
+![IMG_033222](https://github.com/Emisova/english-for-designers/assets/149970173/43b09284-0de1-45f8-91a2-b9ed3a67d308)
+
+![IMG_0474](https://github.com/Emisova/english-for-designers/assets/149970173/c6fe475d-2177-4169-b166-cd1d99fc6106)
 
 
 # Projects 
