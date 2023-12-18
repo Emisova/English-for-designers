@@ -3,7 +3,7 @@
 
 Hello, my name is Emma Žambůrková. I am a 3D creator, artist, dancer, and stunt performer.
 
-A little about my past and present:
+## A little about my past and present:
 My passion for creating something creative has been with me since childhood. From the age of 9, I dedicated myself to dancing, initially recreationally and later competitively. The dance group I belonged to and competed with was called Danceway. With this group, we became champions of the Czech Republic several times and participated in the European and World Championships abroad, specifically in the Netherlands. I am no longer part of this group as our team disbanded, and everyone went their separate ways. (Over time, things changed within the team, and it wasn't the same as before.)
 
 ![IMG_2163](https://github.com/Emisova/english-for-designers/assets/149970173/7211ca73-d185-4334-838d-de10907b3484)
