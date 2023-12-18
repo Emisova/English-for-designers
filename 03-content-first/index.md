@@ -22,6 +22,7 @@
 
 ➤ I've already shown my film project, but I can at least show you the characters because I can't play videos here.
 
+# My hobby projects:
 ![kazetečky](https://github.com/Emisova/english-for-designers/assets/149970173/e8d2aad5-9710-4277-ad65-4dd54d4fe4d4)
 
 ![tv2](https://github.com/Emisova/english-for-designers/assets/149970173/49a257ee-48f5-45e2-872b-eed718845155)
@@ -47,6 +48,6 @@ Misterbox provides standalone storage units, similar to modified shipping contai
 # TESCO MOBILE 
 Tesco mobile is an independent mobile virtual operator, a 50/50 joint venture between O2 Czech Republic and Tesco Stores ČR. For them, I am currently creating motion graphics. Unfortunately, I can't show my work yet as it's still in process.
 
-➤ In the end thank you for your attention and time. If you want work together, here are my contacts: 
+## In the end thank you for your attention and time. If you want work together, here are my contacts: 
 
 e.zambuur@seznam.cz or you can find me on instagram: emisova. 
