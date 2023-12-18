@@ -42,10 +42,8 @@ Regarding projects, I am mainly a freelancer, helping or fulfilling requests and
 
 MISTERBOX provides standalone storage units, similar to modified shipping containers for storing various items. For them, I create 3D videos.
 
-
-
-TESCO MOBILE is an independent mobile virtual operator, a 50/50 joint venture between O2 Czech Republic and Tesco Stores ČR. For them, I am currently creating motion graphics. Unfortunately, I can't show my work yet as it's still in process
+TESCO MOBILE is an independent mobile virtual operator, a 50/50 joint venture between O2 Czech Republic and Tesco Stores ČR. For them, I am currently creating motion graphics. Unfortunately, I can't show my work yet as it's still in process.
 
 In the end thank you for your attention and time. If you want work together, here are my contacts: 
 
-e.zambuur@seznam.cz or you can find me on instagram: emisova 
+e.zambuur@seznam.cz or you can find me on instagram: emisova. 
