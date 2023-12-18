@@ -36,7 +36,7 @@
 ![IMG_0474](https://github.com/Emisova/english-for-designers/assets/149970173/c6fe475d-2177-4169-b166-cd1d99fc6106)
 
 
-# Projects 
+# Projects: 
 ➤ Regarding projects, I am mainly a freelancer, helping or fulfilling requests and ideas when someone needs assistance. Currently, I am working for two companies: MISTERBOX and TESCO MOBILE.
 
 # MISTERBOX
