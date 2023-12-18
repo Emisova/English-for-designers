@@ -39,13 +39,13 @@
 # Projects: 
 ➤ Regarding projects, I am mainly a freelancer, helping or fulfilling requests and ideas when someone needs assistance. Currently, I am working for two companies: MISTERBOX and TESCO MOBILE.
 
-# MISTERBOX
+## MISTERBOX
 Misterbox provides standalone storage units, similar to modified shipping containers for storing various items. For them, I create 3D videos.
 
 <img width="1096" alt="Snímek obrazovky 2023-12-18 203500" src="https://github.com/Emisova/english-for-designers/assets/149970173/efed8c54-168e-4802-8477-81d70c21864c">
 <img width="672" alt="Snímek obrazovky 2023-12-18 205019" src="https://github.com/Emisova/english-for-designers/assets/149970173/c9f4628c-bcc1-45d2-bb18-01eeda27b76f">
 
-# TESCO MOBILE 
+## TESCO MOBILE 
 Tesco mobile is an independent mobile virtual operator, a 50/50 joint venture between O2 Czech Republic and Tesco Stores ČR. For them, I am currently creating motion graphics. Unfortunately, I can't show my work yet as it's still in process.
 
 ## In the end thank you for your attention and time. If you want work together, here are my contacts: 
