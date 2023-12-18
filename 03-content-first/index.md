@@ -12,7 +12,7 @@ Since the age of 16, I have been a member of a stunt team in Prague (FILMKA), a 
 
 ![IMG_6355](https://github.com/Emisova/english-for-designers/assets/149970173/f3ce5a0f-7ccd-4054-8d61-f3c88242561a)
 ![IMG_2166](https://github.com/Emisova/english-for-designers/assets/149970173/ef60045e-37fb-488a-8e5b-9e32195389f4)
-![IMG_2164](https://github.com/Emisova/english-for-designers/assets/149970173/ad44a0b5-8a7c-4222-adfc-a15ca74fc46c)
+![IMG_2310](https://github.com/Emisova/english-for-designers/assets/149970173/ff7d002b-93d6-419a-a318-85fc02aa5316)
 
 My high school was not at all creative; I attended a general high school where there was no art or anything creative. At the end of high school, I wanted to study something that genuinely interested me and where I could find my next passion. So, I decided on the field of animation and VFX because it was something new and highly intriguing, and I discovered a passion I didn't know I had.
 
