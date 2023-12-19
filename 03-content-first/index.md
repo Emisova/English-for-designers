@@ -8,7 +8,7 @@
 
 ![IMG_2163](https://github.com/Emisova/english-for-designers/assets/149970173/7211ca73-d185-4334-838d-de10907b3484)
 
-➤ Since the age of 16, I have been a member of a stunt team in Prague (FILMKA), a group of stunt performers in the Czech Republic called upon for various films, including those for Netflix or Amazon, and many other productions. It's a fantastic group of people who love adrenaline, and I am very grateful to be part of it, contributing to the creation of various series and films.
+➤ Since the age of 16, I have been a member of a stunt team in Prague (FILMKA), a group of stunt performers in the Czech Republic called upon for various films, including those for Netflix or Amazon, and many other productions. It's a fantastic group of people who love adrenaline, and I am very grateful to be part of it, contributing to the creation of various serials and films.
 
 ![IMG_6355](https://github.com/Emisova/english-for-designers/assets/149970173/f3ce5a0f-7ccd-4054-8d61-f3c88242561a)
 ![IMG_2166](https://github.com/Emisova/english-for-designers/assets/149970173/ef60045e-37fb-488a-8e5b-9e32195389f4)
