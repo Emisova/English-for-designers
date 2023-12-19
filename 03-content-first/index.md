@@ -1,5 +1,6 @@
 
-# Hello, my name is Emma Žambůrková and I'm 3D artist, creator, dancer and stunt performer.
+# Hello!
+## My name is Emma Žambůrková and I'm 3D artist, creator, dancer and stunt performer.
 ![180](https://github.com/Emisova/english-for-designers/assets/149970173/1cd8191e-2f3a-459c-a704-df490798a5eb)
 
 
