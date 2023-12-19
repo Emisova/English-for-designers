@@ -22,8 +22,6 @@
 
 ➤ Currently, I am passionate about creating my imaginary characters. This idea came to me while working on my second-year film project when I had a concept for a film while listening to music. I think many people experience this – getting inspired by music to come up with ideas that can be realized. This happens to me frequently because I love music, and it inspires me a lot. I thought, why not create something that defines me and is my style. So, I started working on this idea not just for the film project but in general.
 
-➤ I've already shown my film project, but I can at least show you the characters because I can't play videos here.
-
 # My hobby projects:
 ![kazetečky](https://github.com/Emisova/english-for-designers/assets/149970173/e8d2aad5-9710-4277-ad65-4dd54d4fe4d4)
 
