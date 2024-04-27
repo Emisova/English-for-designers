@@ -17,4 +17,4 @@ Consider life as an untamed and unforgiving ocean, and you are either a sailor o
 While it's beneficial to take refuge in your comfort zone as a brief pause, it becomes problematic when that pause evolves into stagnation—stagnation halts growth, obstructs new opportunities and discoveries, and prevents us from appreciating the beauty of life.
 
 So, be the pirate of your ocean—take the helm, embrace the unfamiliar, explore the uncharted, and welcome new possibilities. As someone who has repeatedly navigated the same doldrums, I can assure you that stepping out of your comfort zone is not as difficult as it seems, and I will explain why in some examples.
-###  [Canva]()[Comfort zone (1).pdf](https://github.com/Emisova/english-for-designers/files/15137928/Comfort.zone.1.pdf)
+### [Comfort zone (1).pdf](https://github.com/Emisova/english-for-designers/files/15137928/Comfort.zone.1.pdf)
