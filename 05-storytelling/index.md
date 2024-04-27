@@ -2,7 +2,7 @@
 ## How to get out of your comfort zone
 I didn't know what topic to choose, what to talk about here; I didn't want to talk about myself again, but then an idea came to me. That I could present something informative and helpful for life. My storytelling deals with how to step out of the comfort zone, I enjoy and am interested in something that builds your character, moves you forward, gives you a sense of improvement, and faces challenges.
 
-How to Step Out of Your Comfort Zone
+### How to Step Out of Your Comfort Zone
 
 This topic is chosen because I believe it's not healthy to remain stagnant in life. Life is a gift that should be utilized to its fullest extent, exploring as much as possible. Experiencing various encounters and truly pursuing what you desire. Of course, there are numerous obstacles one must confront, such as work, worries, responsibilities, personal relationships, mental health, and so forth. However, these should not hold you back indefinitely. I understand it's not always easy. It's normal to seek refuge in your comfort zone when life gets tough—frankly, life is challenging most of the time. In times of difficulty, our comfort zone serves as a valuable respite—to rest, recharge, rediscover, recollect, and set sail once more.
 
